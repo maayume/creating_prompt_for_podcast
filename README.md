@@ -39,7 +39,7 @@ A cada episódio, uma nova lição para fortalecer sua mente e seu espírito pro
 * **Título:** Os princípios de Zanshin e Rei
 * **Lição Principal:** Entenda o poder de estar 100% presente (**Zanshin**) e a importância de demonstrar respeito (**Rei**) em qualquer interação profissional.
 
-➡️ **[🔗 Ouça Agora no Spotify](SEU_LINK_PARA_O_EPISÓDIO_NO_SPOTIFY)**
+➡️ **[🔗 Ouça Agora no Spotify](https://open.spotify.com/episode/6ArfUXrJF2ExPrdIJir5TO?si=2g6CSBAKQYy2q6YTMaxOEw)**
 
 ---
  
